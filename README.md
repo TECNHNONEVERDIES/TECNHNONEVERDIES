@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding ig  ( and jokes ) 
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on absolutely nothing
-- 📫 How to reach me I seriously dont know, but you can whatsapp me on 9137229499
+- 📫 How to reach me ? I seriously dont know, but you can whatsapp me on 9137229499
 - 😄 Pronouns: techno, never and dies
 - ⚡ Fun fact: I am a techno blade supporter
 
